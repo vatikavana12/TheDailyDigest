@@ -1,1 +1,1 @@
-# TheDailyDigest
+https://quicknewsflash.weebly.com
